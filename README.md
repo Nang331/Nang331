@@ -2,7 +2,7 @@
 - 👀 I’m interested in hot chick
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate on chick
-- - 📫 How to reach me vietviet2003@gmail.com
+- 📫 How to reach me vietviet2003@gmail.com
 - 😄 Pronouns: big dick
 - ⚡ Fun fact: big dick
 
